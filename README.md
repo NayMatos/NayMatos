@@ -1,5 +1,5 @@
 # 💫 About Me:
-Project Management Intern at Hogarth.<br>Studying Analysis and Systems Development at Fatec Rubens Lara.<br>Love studying, watching movies and reading books.<br>Constantly evolving, learning, and building in tech and beyond.
+Project Management.<br>Studying Analysis and Systems Development at Fatec Rubens Lara.<br>Love studying, watching movies and reading books.<br>Constantly evolving, learning, and building in tech and beyond.
 
 
 ## 🌐 Socials:
